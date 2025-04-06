@@ -1,2 +1,0 @@
-# josejamujr.github.io
-PortfolioPU
